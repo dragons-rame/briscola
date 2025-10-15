@@ -1,2 +1,2 @@
 # briscola
-un cosa bella
+divertitevi
